@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @claymator
+- 👀 I’m interested in coding and software design
+- 🌱 I’m currently learning nothing 
+- 💞️ I’m looking to collaborate on nothing currently
+- 📫 How to reach me claymator#0965 discord
